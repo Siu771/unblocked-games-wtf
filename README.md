@@ -1,7 +1,7 @@
 # UNBLOCKED GAMES WTF
 Where to play unblocked games Wtf games online in your browser when school block games...
 
-If you are looking to play <a href="https://66games.io/">Unblocked Games 66 EZ</a> you can visit <a href="https://66games.io">66 EZ GAMES</a>.io site and play most popular games like:
+If you are looking to play <a href="https://pizzaeditiongames.com/">The Pizza Edition</a> you can visit <a href="https://66games.io">66 EZ GAMES</a>.io site and play most popular games like:
 
 <a href="https://66games.io/play/retro-bowl">Retro Bowl</a>
 
